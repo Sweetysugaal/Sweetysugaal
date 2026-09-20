@@ -1,4 +1,4 @@
-# Hi, I'm Zainab 👋
+# Hi, I'm Zeinab Ali 👋
 
 ### 🛡️ Cybersecurity | SOC Analyst | Security Operations
 
